@@ -1,4 +1,4 @@
-# 
+# Melhor Bitdefender Total Security plugins para Mac OS | Inteligente Bitdefender Total Security plugins para PC Windows. Com notificações de alerta e identificação de impressão digital do dispositivo — otimizado para máximo desempenho em cada plataforma.
 
 
 
